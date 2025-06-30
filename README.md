@@ -48,8 +48,8 @@ La huella energética está ligada a múltiples políticas europeas y regionales
 ## 👤 Autor
 
 Pablo López Vaca
-✨ IA aplicada y datos | 🌱 Sostenibilidad | ⚖️ Regulación ambiental | 📊 ESG | 💡 Innovación responsable en sectores regulados
-https://www.linkedin.com/in/pablolopezvaca/
+- ✨ IA aplicada y datos | 🌱 Sostenibilidad | ⚖️ Regulación ambiental | 📊 ESG | 💡 Innovación responsable en sectores regulados
+- https://www.linkedin.com/in/pablolopezvaca/
 
 ---
 
